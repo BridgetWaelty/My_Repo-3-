@@ -11,8 +11,6 @@ the first snow of winter gathered upon his eyelashes and dusted nearby branches.
 In a moment of sleepless drifting, the heavy-eyed moon went blind 
 unable to find a man distinct from the trees
 
-![Dawning!](419eaed1953107086a405d1f62860778.jpg "Dawning")
-
 ### Ave Marie
 
 He found her crouched in the basin of a blue porcelain sink, 
@@ -21,6 +19,8 @@ Where she drew two small kittens at the bridge of her feet.
 She reached for his wrists
 and opened his palms to kiss 
 the uneven lines of an unfolded tattoo rose.
+
+>  These poems has not been modified from their original draft.
 
 
 
